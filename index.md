@@ -11,7 +11,7 @@
 
 
 
-![Aloo Paratha](https://hebbarskitchen.com/wp-content/uploads/2021/03/aloo-paratha-recipe-aalu-ka-paratha-aloo-ka-paratha-potato-paratha-2-1365x2048.jpeg)
+![Aloo Paratha](/aloo.jpeg)
 
 
 
