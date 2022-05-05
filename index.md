@@ -7,7 +7,6 @@
 
 # Thank you all for your wishes !!!
 
-
 ![Aloo Paratha](/aloo.jpeg)
 
 
