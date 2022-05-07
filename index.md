@@ -3,7 +3,7 @@
 
 ## Gayatri is 3 months pregnant now!
 
-## We really wanted to give surprise BUT Khushoo and Shilpa were right from the start !!!
+## We really wanted to give surprise BUT Khushbu, Shilpa and Anikta were right from the start !!!
 
 # Thank you all for your wishes !!!
 
